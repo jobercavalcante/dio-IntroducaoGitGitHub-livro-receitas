@@ -1,6 +1,8 @@
-# Strogonoff de frango :baby_chick:
+# Bobó de Galinha :baby_chick:
 
-**Negrito** _italico_
+- 1 peito de frango
+- 1 pacote de molho de tomate
+- 
 
 
 
